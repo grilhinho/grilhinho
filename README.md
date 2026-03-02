@@ -1,9 +1,9 @@
 ## oii eu sou a monique  👋💀✨🦗
 
-- 💻: faço tec. em  Desenvolvimento de sistemas no kennedy.
-- 💬: conteúdo que mais gostei foi programar no python.
-- 🌸: meus hobbys são: ler 📖 , estudar insetos 🪲 e escutar música 🎧✨
-
+     - 💻: faço tec. em  Desenvolvimento de sistemas no kennedy.
+     - 💬: conteúdo que mais gostei foi programar no python.
+     - 🌸: meus hobbys são: ler 📖 , estudar insetos 🪲 e escutar música 🎧✨
+-   °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･°❀⋆.
 
 <div align= "center">
   
